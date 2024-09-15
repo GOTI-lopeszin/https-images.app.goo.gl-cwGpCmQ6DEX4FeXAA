@@ -1,1 +1,1 @@
-# https-images.app.goo.gl-cwGpCmQ6DEX4FeXAA
+https://images.app.goo.gl/cwGpCmQ6DEX4FeXAA
